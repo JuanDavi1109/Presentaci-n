@@ -9,3 +9,4 @@ Entre mis aficiones se encuentran:
 Yo no pienso que sea una mala persona, ya que me considero una persona amable que no busca hacerle el mal a nadie.
 
 ![silla](images.jpeg)
+https://www.google.com/goto?url=CAESZwHrOzAVEEzFE0mkvnSIyOBH1IhBrhjOXaRvAir_VEz9jUyKfmrsGhtKVVSzQucx5Nor1wDsVs-jHXV1rZ9wIrf_EWpApkYNijTO-6hOqjvaKIDxZtQuduxKg3Nr8JuYNh39Ienx4p8
