@@ -7,3 +7,5 @@ Entre mis aficiones se encuentran:
 * Salir a caminar, porque me encanta dar paseos ya sean por campo o pueblo para tomar el aire y despejarme mentalmente.
 ## Como me considero
 Yo no pienso que sea una mala persona, ya que me considero una persona amable que no busca hacerle el mal a nadie.
+
+![silla](images.jpeg)
